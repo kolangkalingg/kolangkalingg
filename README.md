@@ -1,5 +1,6 @@
 # 💫 About Me:
-Hi there! I'm Saya Risky Ramadani, a student from Indonesia currently residing in the beautiful island of Kalimantan. 🌴<br><br>🎮 Hobbies: I love playing games during my free time, exploring new worlds, and honing my skills.<br>🎂 Birthday: October 10, 2006
+Hi there! I'm
+Risky Ramadani, a student from Indonesia currently residing in the beautiful island of Kalimantan. 🌴<br><br>🎮 Hobbies: I love playing games during my free time, exploring new worlds, and honing my skills.<br>🎂 Birthday: October 10, 2006
 
 
 ## 🌐 Socials:
